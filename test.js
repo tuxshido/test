@@ -12,3 +12,6 @@ coding in the basebranch;
 insane in the meme brain;
 all right, all right;
 for the beauty;
+black hole sun;
+stone temple pilots;
+daft poonk;
